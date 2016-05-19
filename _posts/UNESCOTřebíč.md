@@ -15,3 +15,6 @@ komunity, která byla v Třebíči v minulosti velmi početná.
 
 [UNESCO Třebíč](http://www.trebic.cz/unesco/)
 [UNESCO Třebíč 2](http://www.unesco-czech.cz/trebic/predstaveni/)
+
+
+19. 5. 2016
